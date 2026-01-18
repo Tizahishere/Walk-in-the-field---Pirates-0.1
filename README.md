@@ -1,3 +1,2 @@
-# Walk In The Field
-download now  we got little exploits but we will improve soon
-this is a early Package Sooooo You must wait a long time
+# Walk In The Field and u got sum funny hax yay
+We don't have alot of exploits yet But we are definitely gonna get more
